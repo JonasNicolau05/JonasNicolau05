@@ -1,5 +1,5 @@
 # 💫 About Me:
-🎓Bacharel em Sistemas de Informação<br>🎓Pós-graduando em Segurança de Informação e Gestão de TI<br>📚Certificate Oracle<br>👨🏼‍💻 System Analyst in XTRAL Aluminum
+🎓Bacharel em Sistemas de Informação<br>🎓Pós-graduando em Segurança de Informação e Gestão de TI<br>📚Certificate Oracle<br>👨🏼‍💻 Data Analyst in XTRAL Aluminum
 
 
 ## 🌐 Socials:
